@@ -1,1 +1,0 @@
-# MH-Care-Student-Portal
